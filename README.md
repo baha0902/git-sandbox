@@ -1,6 +1,7 @@
 # git-sandbox
+hi ...
 
-Do your best.. Learn and learn..Dont be give up !!! 👌👌👌😊
+Do your best.. Learn andarn..Dont be give up !!! 👌👌👌😊
 
 kg pisang bersiri siri
 yakyak yeaaaaa
